@@ -1,0 +1,1 @@
+# 02.-Fokus-Lensa-dan-Gerak-parabola
